@@ -1,1 +1,1 @@
-Archive of existing site www.seventhcircleaudio.com
+Archive of old static site
